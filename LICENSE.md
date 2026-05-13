@@ -1,4 +1,4 @@
-# 
+# updated nft floor sweeper bot | gas-optimization + trailing-stop offers the most advanced nft floor sweeper bot, with gas-optimization and trailing-stop. Ideal for professional
 
 
 
